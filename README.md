@@ -1,0 +1,1 @@
+# AllWays-Care-Smart-Watch
